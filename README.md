@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Flo1117
+- 👀 I’m interested in music and photography
+- 🌱 I’m currently learning html and Javascript
+- 💞️ I’m looking to collaborate on localization or translation project. I am bilingual between Korean and English!
+- 📫 How to reach me POLNIMA@GMAIL.COM
