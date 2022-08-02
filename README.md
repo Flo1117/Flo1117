@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning html and Javascript
 - 💞️ I’m looking to collaborate on localization or translation project. I am bilingual between Korean and English!
 - 📫 How to reach me POLNIMA@GMAIL.COM
+- Can also photoshop, shoot and video edit as well. Just putting it out there.
